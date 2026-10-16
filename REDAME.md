@@ -77,3 +77,9 @@ Final Statement
 This repository preserves a personal hope and speculative research material. It is an invitation to read, question, preserve, and evaluate—not a claim that a working temporal device exists.
 
 The personal goals described here are also worth pursuing in the present, independently of whether any future technology becomes possible.
+
+Purpose of project:
+To create a time machine
+Discover backwards time travel and explore the full concept officially inventing it
+Allow for backwards time travel uses such as shortening the pandemic (Oh and don't forget to apply these uses and if you want to end it with macroengineers), I suggest finding a way to send it way to into the future with robots use that kind of technology to complete the mission and find a Rosetta Stone to archive it).
+For cinema-theraputic uses, time travel uses, and the understanding of doing what's best for me, my Known List, and possibly everyone after my impulsivity led to a ton of mistakes that I didn't know what I was getting into when making them, find a way to go back in time and have a time machine use, Temporal GIS check, and more for me. And I swear I know what I want, and after checking all files, it is important to recognize how that could be a possibility.
